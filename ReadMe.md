@@ -1,4 +1,4 @@
-# 💫 About Me:
+#Beginner Or Newbie Whatever:
 💼 Commerce Student | 💻 Coding Newbie | 🚀 Exploring GitHub<br>Just a commerce student having fun with code. Exploring GitHub and learning new things every day. 🚀✨
 
 
